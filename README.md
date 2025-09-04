@@ -52,7 +52,7 @@
 
 ## 📫 Contact Me  
 - **Email:** [the.ram.bhatt@gmail.com](mailto:the.ram.bhatt@gmail.com)  
-- **Phone:** +977 9812705820 | +91 8630337415  
+- **Phone:** +977 9812705820 | +91 8630337415    
 
 ---
 
